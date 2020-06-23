@@ -1,4 +1,4 @@
-<p style="text-align:justify">ngày nay có thể chữa trị sùi mào gà bằng một sốcách thức ALA &ndash; PDT. Ngoài ra, bệnh sùi mào gà còn có khả năng trị bằng nhiều phương pháp từ các bài thuốc thảo dược thiên nhiên. Trong số đó, <strong><a href="http://phongkhamthaiha.com/cach-chua-benh-sui-mao-ga-bang-toi-102269.html">chữa sùi mào gà bằng tỏi</a></strong> là phương pháp được tương đối nhiều người chú ý và mang lại tốt nhất tích cực.</p>
+<p style="text-align:justify">ngày nay có thể chữa trị sùi mào gà bằng một sốcách thức ALA &ndash; PDT. Ngoài ra, bệnh sùi mào gà còn có khả năng trị bằng nhiều phương pháp từ các bài thuốc thảo dược thiên nhiên. Trong số đó, <strong>chữa sùi mào gà bằng tỏi</strong> là phương pháp được tương đối nhiều người chú ý và mang lại tốt nhất tích cực.</p>
 
 <p style="text-align:justify">Để hiểu thêm về <strong>liệu pháp chữa trị sùi mào gà tại nhà bằng tỏi</strong> mong mời bạn đọc theo dõi trong phần nội dung bài viết này.</p>
 
@@ -8,7 +8,7 @@
 
 <h2>biện pháp chữa trị bệnh sùi mào gà bằng tỏi</h2>
 
-<p style="text-align:justify"><a href="http://benhxahoi.xyz/benh-sui-mao-ga-nguyen-nhan-trieu-chung-va-cach-dieu-tri-10240.html"><strong>cach chua sui mao ga</strong></a> bằng tỏi sẽ giúp cho chữa trị các tổn hại bên ngoài, loại bỏ không cho virus sùi mào gà phát triển lớn hơn. Tuy nhiên, giải pháp này không thể trị tận gốc virus gây bệnh, chứng bệnh sẽ dễ tái phát nếu gặp điều kiện phù hợp. Để chữa trị sùi mào gà bằng tỏi tại nhà, bạn có khả năng thực hiện theo một số công nghệ tiến hành sau:</p>
+<p style="text-align:justify">cach chua sui mao ga bằng tỏi sẽ giúp cho chữa trị các tổn hại bên ngoài, loại bỏ không cho virus sùi mào gà phát triển lớn hơn. Tuy nhiên, giải pháp này không thể trị tận gốc virus gây bệnh, chứng bệnh sẽ dễ tái phát nếu gặp điều kiện phù hợp. Để chữa trị sùi mào gà bằng tỏi tại nhà, bạn có khả năng thực hiện theo một số công nghệ tiến hành sau:</p>
 
 <h3 style="text-align:center">giải pháp 1</h3>
 
@@ -18,7 +18,6 @@
 
 <p style="text-align:justify">lấy 2 &ndash; 3 nhánh tỏi tươi giã nát, đắp vào những vị trí gặp phải tổn hại, áp dụng băng gạc y tế để cố định lại. Tuy vậy, hạn chế đắp nhiều tỏi trong thời gian lâu ngày vì dễ gây nên phồng rộp, phỏng.</p>
 
-<p style="text-align:justify">xem thêm: <strong><a href="http://benhxahoi.xyz/chua-sui-mao-ga-o-dau-tot-tai-ha-noi-10292.html">chữa bệnh sùi mào gà ở đâu</a></strong> tốt uy tín tại hà nội</p>
 
 <p style="text-align:justify">dùng tỏi có chữa bệnh mồng gà tận gốc có được không?</p>
 
